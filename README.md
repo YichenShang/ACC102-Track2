@@ -166,7 +166,7 @@ GitHub Repository
 
 Demo Video
 
-()
+(【ACC102-Track2 Global Inflation and Unemployment Analysis.-哔哩哔哩】 https://b23.tv/xNdw6Tw)
 
 ---
 
